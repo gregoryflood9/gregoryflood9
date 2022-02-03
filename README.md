@@ -1,9 +1,9 @@
 I’m @gregoryflood9
-I’m interested in Advanced Systematic encryption decryption techniques and development
+Interest Advanced IT Systematics, digital forensic analysis, cyber security, cryptography (encryption decryption) techniques and development
 
  
 
-gflood92@gmail.com
+floods@cyberservices.com
 
 
 - 💞️ 
